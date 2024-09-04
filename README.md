@@ -6,7 +6,14 @@ Meu nome e Davi lucas
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-  ###Para você entrar em contato comigo📫
+  ### Para você entrar em contato comigo📫
 
   davilucasztrem@gmail.com
+
   @Davi_hzz
+
+
+
+![](https://tenor.com/pt-BR/view/goku-joia-gif-20071677)
+
+
